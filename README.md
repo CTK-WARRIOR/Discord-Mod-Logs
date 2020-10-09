@@ -1,4 +1,4 @@
 # Discord-Mod-Logs
 
 
-JOIN MY SERVER : https://withwin.in/dbd
+JOIN MY SERVER : https://discord.gg/cV2ENjt
